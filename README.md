@@ -6,7 +6,7 @@
 <p>NOT EVERY ENCOUNTER HAS AN END
 BUT EACH MEETING CARRIES SOME MEANING
 <p>I appreciate this sentence awfully！
-<p>I LVOE YOU Kirigiri Kyouko.
+<p>I LOVE YOU Kirigiri Kyouko.
 <p>Nice to meet you！！
 
 
